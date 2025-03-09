@@ -3,6 +3,8 @@
 
 Lyon, ville lumière et capitale de la gastronomie, se révèle être une destination de choix pour un week-end romantique. Entre ses ruelles pittoresques, ses quais apaisants et son ambiance chaleureuse, la ville offre un cadre idéal pour célébrer l’amour. Et si vous poussiez l’expérience encore plus loin en optant pour une Love Room ? Ces chambres d’exception, conçues spécialement pour les couples, promettent un séjour intime et mémorable. Découvrez pourquoi Lyon est la destination parfaite pour une escapade en amoureux et comment une Love Room peut transformer votre week-end en un moment inoubliable.
 
+[Découvrez toutes les LOVE ROOM à LYON en cliquant ici](https://www.introuvable.com/fr/place-area/lyon.html)
+
 ## Pourquoi choisir une love room à lyon pour un séjour romantique
 ---------------------------------------------------------------
 
