@@ -7,7 +7,7 @@ Lyon, ville lumière et capitale de la gastronomie, se révèle être une destin
 
 ## Pourquoi choisir une love room à lyon pour un séjour romantique
 ---------------------------------------------------------------
-
+![Love Room LYON](https://i.pinimg.com/736x/20/9d/e0/209de0fd6f21753d2e9edbd605f24029.jpg "Love Room Lyon").
 Imaginez un espace où chaque détail est pensé pour vous faire oublier le quotidien. Une Love Room, c’est bien plus qu’une simple chambre d’hôtel. C’est un cocon douillet, un havre de paix où vous pourrez vous recentrer sur l’essentiel : votre complicité. Mais pourquoi Lyon, me direz-vous ? Parce que cette ville, à la fois dynamique et romantique, sait allier modernité et tradition, offrant ainsi un cadre unique pour vos moments à deux.
 
 ### Un cadre intime et cocooning pour les couples
